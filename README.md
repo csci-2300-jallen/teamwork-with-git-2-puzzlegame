@@ -1,4 +1,4 @@
-Teammate 1
-Teammate 2
-Teammate 3
-Teammate 4
+Bianca Farfan - Manager
+Shriya - Teammate 2
+Hunter - Teammate 3
+Nico Delrosario
